@@ -1,3 +1,3 @@
-# Boxing + Exiciting
+# Boxing + Exciting
 
 Boxing Websites
